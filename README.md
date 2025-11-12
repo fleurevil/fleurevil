@@ -1,1 +1,1 @@
-![](https://file.garden/Z6S1uVOdCyNk2Xo1/Untitled681_20251112122354(1)(1).png)
+<img src="https://file.garden/Z6S1uVOdCyNk2Xo1/Untitled681_20251112122354(1)(1).png" width=80% height=80%>
